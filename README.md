@@ -1,4 +1,4 @@
-# Hi 👋, I'm 2406043 M. Luthfi Nabih
+# Hi 👋, I'm 2406042 Chipta dhera aditya
 
 ### Praktikum Analisis Desain Berorientasi Objek
 
